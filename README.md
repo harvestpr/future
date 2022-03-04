@@ -6,10 +6,7 @@ rencana kedepannya
 tidur tepat waktu
 jago ngoding
 
--bulan april
 
-rajin belajar 
-rajin tenang
 
 -bulan mei
 
